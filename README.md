@@ -28,12 +28,9 @@
 ---
 
 ### 📫 How to reach me
-- 📧 **Email**: sarvarjon007@gmail.com  
+- 📧 **Email**: erniyazov_sarvarbek@jnu.ac.kr  
 - 💼 **LinkedIn**: [Your LinkedIn Link](#)  
-- 🐦 **Twitter/X**: [Your Twitter Link](#)  
 
 ---
 
 ⚡ **Fun fact:** I mix energy systems with AI — and coffee ☕ keeps both running!  
-
----
